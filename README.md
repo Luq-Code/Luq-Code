@@ -1,5 +1,5 @@
-Assalamualaikum and Hi guys
+Assalamualaikum and Hi guys🙌
 
 I currently start to learn coding, So I started learn code
-from freeCodeCamp's website and also learn C programming.
+from freeCodeCamp's website and also learn C programming.😋
 
